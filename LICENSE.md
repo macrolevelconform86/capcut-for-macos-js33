@@ -1,4 +1,4 @@
-# 
+# exclusive CapCut for macOS Filter | noise-reduction + text-animation is the best CapCut for macOS filter, featuring noise-reduction and text-animation. Safe, efficient, and
 
 
 
